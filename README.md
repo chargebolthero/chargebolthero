@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @chargebolthero
-- 👀 I’m interested in milfs and dilfs
-- 🌱 I’m currently learning software dev
-- 💞️ I’m looking to collaborate on ur mom
-- 📫 How to reach me dont
-- 😄 Pronouns: he/him/his
-- ⚡ Fun fact: ...
+hood irony mf
